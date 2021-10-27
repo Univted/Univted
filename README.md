@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @wqkk
+- 👀 I’m interested in computer science/Information Security
